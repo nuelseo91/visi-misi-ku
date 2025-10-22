@@ -1,3 +1,4 @@
-# visi-misi-ku
-visi misi 2026
-Imanuel Seo
+Biodata Pa Eman
+1. lahir di sabu
+2. mempunyai motor
+   
